@@ -10,4 +10,4 @@ Meu nome é Eloise💜
 
 00001124061228sp@al.educacao.sp.gov.br
 
-´{https://media1.tenor.com/m/CzaHhPyIR8gAAAAC/rosy00.gif}
+![](https://media1.tenor.com/m/CzaHhPyIR8gAAAAC/rosy00.gif)
